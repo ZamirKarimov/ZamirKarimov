@@ -2,7 +2,6 @@
 - 👀 I’m interested in annoing
 - 🌱 I’m currently learning how to do boring stuff
 - 💞️ I’m looking to collaborate on being annoing
-- 😄 Pronouns: PIXELUSER/PIXELUSERO
 - ⚡ Fun fact: idk, really
 
 <!---
